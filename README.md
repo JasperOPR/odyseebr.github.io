@@ -30,3 +30,11 @@
 
 * [Compra e Venda (Conversão) de LBC](https://odysee.com/@ajuda:d/troca:0)
 
+
+
+by: Jasper
+
+### Mais ajudas aqui
+
+
+[Discord](https://discord.gg/S24XhKAvYx)                        [Twitter](https://twitter.com/OdyseeB)
