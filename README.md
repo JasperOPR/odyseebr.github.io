@@ -20,4 +20,13 @@
 
 * [Como postar na plataforma](https://odysee.com/@odyseebr:1/upload:6)
 
+* [Sincronização com o Youtube](https://odysee.com/@odyseebr:1/sync:f)
+
+## Monetização de conteudo
+
+* [Monetização de Conteúdo](https://odysee.com/@ajuda:d/monetizacao:d)
+
+* [Transações e Carteira](https://odysee.com/@ajuda:d/carteira:e)
+
+* [Compra e Venda (Conversão) de LBC](https://odysee.com/@ajuda:d/troca:0)
 
